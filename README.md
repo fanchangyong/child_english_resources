@@ -33,3 +33,20 @@
 [Face Painting](http://media.dolphinmedia.cn/wp-content/uploads/2017/09/Face_Painting-p17.mp3)  
 [Dirty Dog](http://media.dolphinmedia.cn/wp-content/uploads/2017/09/Dirty_Dog-p101.mp3)  
 [Something Fishy](http://media.dolphinmedia.cn/wp-content/uploads/2017/09/Something_Fishy-p11.mp3)  
+
+# MEE CLASS PRE LEVEL
+[MEE CLASS-Pre-level-book1_3](https://h5.clewm.net/?url=wxa.cli.im%2Fqr%2Fhuoma%2FC_ofozMT%2FS_1%2Fq7bqsBK%2Fba&hasredirect=1)  
+[MEE CLASS-Pre-level-book1_9](https://h5.clewm.net/?url=wxa.cli.im%2Fqr%2Fhuoma%2FC_ofozMT%2FS_1%2Fq680kwy%2F28&hasredirect=1)  
+[MEE CLASS-Pre-level-book2_3](https://h5.clewm.net/?url=wxa.cli.im%2Fqr%2Fhuoma%2FC_ofozMT%2FS_1%2Fq48izFR%2Fb8&hasredirect=1)  
+[MEE CLASS-Pre-level-book2_9](https://h5.clewm.net/?url=wxa.cli.im%2Fqr%2Fhuoma%2FC_ofozMT%2FS_1%2Fq2novCV%2F63&hasredirect=1)  
+[MEE CLASS-Pre-level-book3_3](https://h5.clewm.net/?url=wxa.cli.im%2Fqr%2Fhuoma%2FC_ofozMT%2FS_1%2Fq3fEJWY%2Fbb&hasredirect=1)  
+[MEE CLASS-Pre-level-book3_9](https://h5.clewm.net/?url=wxa.cli.im%2Fqr%2Fhuoma%2FC_ofozMT%2FS_1%2Fq9hmnvV%2Fae&hasredirect=1)  
+[MEE CLASS-Pre-level-book4_3](https://h5.clewm.net/?url=wxa.cli.im%2Fqr%2Fhuoma%2FC_ofozMT%2FS_1%2FqiFHKNU%2Fdd&hasredirect=1)  
+[MEE CLASS-Pre-level-book4_9](https://h5.clewm.net/?url=wxa.cli.im%2Fqr%2Fhuoma%2FC_ofozMT%2FS_1%2Fq45bkzE%2F80&hasredirect=1)  
+[MEE CLASS-Pre-level-book5_3](https://h5.clewm.net/?url=wxa.cli.im%2Fqr%2Fhuoma%2FC_ofozMT%2FS_1%2FqbiopwX%2F3e&hasredirect=1)  
+[MEE CLASS-Pre-level-book5_9](https://h5.clewm.net/?url=wxa.cli.im%2Fqr%2Fhuoma%2FC_ofozMT%2FS_1%2FqclwLSY%2Fbf&hasredirect=1)  
+[MEE CLASS-Pre-level-book6_3](https://h5.clewm.net/?url=wxa.cli.im%2Fqr%2Fhuoma%2FC_ofozMT%2FS_1%2Fq1gwCXZ%2F04&hasredirect=1)  
+[MEE CLASS-Pre-level-book8_3](https://h5.clewm.net/?url=wxa.cli.im%2Fqr%2Fhuoma%2FC_ofozMT%2FS_1%2Fq35lpJY%2Fd5&hasredirect=1)  
+[MEE CLASS-Pre-level-book8_9](https://h5.clewm.net/?url=wxa.cli.im%2Fqr%2Fhuoma%2FC_ofozMT%2FS_1%2FqavwLTW%2Ffb&hasredirect=1)  
+[MEE CLASS-Pre-level-book9_3](https://h5.clewm.net/?url=wxa.cli.im%2Fqr%2Fhuoma%2FC_ofozMT%2FS_1%2Fq1afnNQ%2F0d&hasredirect=1)  
+
