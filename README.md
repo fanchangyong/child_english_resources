@@ -1,9 +1,9 @@
 # pearson_resources
 培生少儿英语预备级听力资源
 
-[Up the Tree](http://media.dolphinmedia.cn/album/up-the-tree/)  
-[At the Vet](http://media.dolphinmedia.cn/album/at-the-vet/)  
-[Time for Bed](http://media.dolphinmedia.cn/album/time-for-bed/)  
+[Up the Tree](http://media.dolphinmedia.cn/wp-content/uploads/2016/06/Up-the-Tree.mp3)  
+[At the Vet](http://media.dolphinmedia.cn/wp-content/uploads/2016/06/At-the-Vet.mp3/)  
+[Time for Bed](http://media.dolphinmedia.cn/wp-content/uploads/2016/06/Time-for-Bed.mp3)  
 [When I Was a Baby](http://media.dolphinmedia.cn/wp-content/uploads/2017/09/When_I_Was_a_Baby-r171.mp3)  
 [Fish Colours](http://media.dolphinmedia.cn/wp-content/uploads/2017/09/Fish_Colours-p16.mp3)  
 [Fish Facts](http://media.dolphinmedia.cn/wp-content/uploads/2017/09/Fish_Facts-r161.mp3)  
